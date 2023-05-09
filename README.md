@@ -1,1 +1,1 @@
-# WordPress Theme - The CEO
+# WordPress Theme - The CEO Inspired Website
